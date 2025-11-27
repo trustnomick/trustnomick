@@ -1,5 +1,5 @@
 # About Me:
-Currently working in Italy for MTK S.r.l. and full time Computer Engineering student<br>Love to play videogames, travel and developing, obviously.<br>Open to any project that i could be interested on.
+Currently working in Italy for Ultra<Code> S.r.l. and full time Computer Engineering student<br>Love to play videogames, travel and developing, obviously.<br>Open to any project that i could be interested on.
 
 
 ## Socials:
